@@ -8,7 +8,7 @@ https://t.me/CanvaPremiumPlusEnhanced
 - **Is this official canva?** Yes and the updated UI CANVA!
 ## 📸 Screenshots 📸
 ## THE CANVA UI 2024
-![Screenshot 2024-07-13 204320](https://github.com/user-attachments/assets/72eb29c1-6354-4ffc-a9be-09a45f05ac4a)
+![PNGS](https://github.com/user-attachments/assets/ff032aea-c4a4-4a30-884e-0bb71394dc9b)
 
 
 
