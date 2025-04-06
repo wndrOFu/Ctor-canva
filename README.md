@@ -1,5 +1,6 @@
 ## 📎 Telegram Channel 📎
-https://t.me/CanvaPH
+https://t.me/CanvaPremiumPlusEnhanced
+
 ## ✨ Features ✨
 
 - **How to join?** Visit the link and tap the rooms💗
